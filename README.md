@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Singh-Sukhvir-devs
+- 👀 I’m interested in Web Development
+- 🌱 I’m currently learning Digital Marketing
+- 💞️ I’m looking to collaborate with new startups as a web developer on a contract basis
+- 📫 How to reach me : via whatsapp on :- +91-8447787691 , 9667933900
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I was a book reader once in 5000BCE
